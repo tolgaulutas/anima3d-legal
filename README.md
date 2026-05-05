@@ -27,7 +27,7 @@ personal information from children under 13 without parental consent.
 
 ## 6. Contact
 If you have any questions about this Privacy Policy, 
-please contact us at: support@anima3d.app
+please contact us at: tolgaulutasss@icloud.com
 
 ## 7. Changes
 We may update this Privacy Policy from time to time. 
